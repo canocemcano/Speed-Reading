@@ -1,14 +1,49 @@
 # Increase your speed by at least 5 times with the speed reading application.
 
-## Privacy Policy
+## Speed Reading . FULL 48 LANGUAGES.
 
-Cano Cemal built the Speed Reading Exercises app as a Free app. This SERVICE is provided by Cano Cemal at no cost and is intended for use as is.
+If you want to read very often and quickly - the Speed Reading app is the best for you.
+Discover the world of speed reading.
 
-This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
+### With speed reading :
+- Increase your reading speed at least 5 times.
+- Improve photographic memory.
+- Improve your reading habits (without internal voiceover).
+- Expand your field of view considerably.
+- Increase your concentration ability.
+- Improve your memory, attention and vocabulary.
 
-If you choose to use my Service, then you agree to the collection and use of information in relation to this policy. The Personal Information that I collect is used for providing and improving the Service. I will not use or share your information with anyone except as described in this Privacy Policy.
+- Improve your eye muscles. Make your eyes more resistant to future eye diseases.
+- Improve visual field with field of vision and visual field application.
+- Learn to save time when reading any text;
 
-The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible at Speed Reading Exercises unless otherwise defined in this Privacy Policy. 
+Each exercise lasts 60 seconds. Repeat at least 3 times per day.
+Rest your eyes for 60 seconds after each repetition.
+Increase your speed daily (+10).
+
+### Exercises you will find in the Speed Reading app:
+- 7 different text work.
+- 8 different eye exercise.
+- 4 different speed reading exercise.
+- 6 different tones of visual field application.
+- Word search app.
+- Practice reading.
+- Each language (at least 2500 words).
+
+Try using the speed reading app for 3-4 weeks. Your reading speed will increase by 200 - 400 words per minute.
+
+After 1 - 2 months of speed reading, you will read 1500 - 2000 words per minute.
+
+If you're in the final stage of a speed reading application, you will read your books at least 8 times faster.
+
+Start the Speed Reading application.
+
+
+
+
+
+
+
 
 **Information Collection and Use**
 
