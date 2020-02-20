@@ -36,4 +36,4 @@ After 1 - 2 months of speed reading, you will read 1500 - 2000 words per minute.
 
 If you're in the final stage of a speed reading application, you will read your books at least 8 times faster.
 
-Start the Speed Reading application.
+### Start the Speed Reading application.
